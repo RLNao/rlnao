@@ -10,7 +10,7 @@
 - 🌱 Je suis en apprentissage constant  
   
 
-- ❓ Joignable sur  / Twitter / Linkedin  
+- ❓ Joignable sur  / Twitter / Linkedin  et par mail : ryo.leeayen@gmail.com 
   
 
 <br/>  
